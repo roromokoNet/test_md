@@ -1,0 +1,1 @@
+<div style="float:left;margin-right:50"><img src="https://az705183.vo.msecnd.net/onlinesupportmedia/onlinesupport/media/skype/screenshots/fa12330/emoticons/happy_80_anim_gif.gif?width=40&height=40"></div><div><img src="https://az705183.vo.msecnd.net/onlinesupportmedia/onlinesupport/media/skype/screenshots/fa12330/emoticons/facepalm_80_anim_gif.gif?width=40&height=40"></div>
